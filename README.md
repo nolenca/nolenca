@@ -1,1 +1,2 @@
-Mathematics and Computer Science at Northwestern University
+Constantly improving.
+Currently located in Evanston, IL.
